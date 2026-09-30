@@ -1,0 +1,2 @@
+# axomhaat-privacy
+Privacy Policy
